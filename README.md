@@ -1,4 +1,4 @@
-### greetings
+### introduction
 
 gmt3+
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
@@ -18,6 +18,8 @@ gmt3+
 ୨୧┇ my persona..? loyal, socially playful, teasing,  humorous,
 
 ୨୧┇ reminder.. my personalities change fastly. i may talk differently every 30-60.. heh sorry.
+
+୨୧┇ transboy , bisexual.
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
 ╰─ ♡ my favorite...
