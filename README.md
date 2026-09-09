@@ -1,10 +1,8 @@
-### introduction
-
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 
  ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉
 
-╰─ ♡ about me:
+### ╰─ ♡ about me:
 
 ୨୧┇ hiya there!! i go by isaac/augustus ^^
 
@@ -22,7 +20,7 @@
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
-╰─ ♡ my favorite...
+### ╰─ ♡ my favorite...
 
 ୨୧┇ i love light muted blues.. and green, yellow too!!
 
@@ -36,7 +34,7 @@
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
-╰─ ♡ interests & more!
+### ╰─ ♡ interests & more!
 
 ୨୧┇ intrests.. 
 mm12… yes int mm12 fanzzz omfggg, atla, loa, lok, black clover, transformers, 4skn
@@ -47,7 +45,7 @@ calebtrapped, kirbycaleb/kirbychoka, coldhunting, korrasami
 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 
-╰─ ♡ boundaires,
+### ╰─ ♡ boundaires,
 
 > One: do not give me suggestive or pet names, those make me uncomfortable.
 >
