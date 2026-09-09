@@ -6,32 +6,32 @@
 
 ╰─ ♡ about me:
 
-୨୧┇ hiya there!! i go by isaac ^^
+୨୧┇ hiya there!! i go by isaac/augustus ^^
 
-୨୧┇ i use masc pronouns, and prince/princes/princeself !!
+୨୧┇ i use masc terms, and prince/princes/princeself !!
 
 ୨୧┇ my bday is sept 12th ^^ (Virgo)
 
 ୨୧┇ extrovert, ISFP
 
-୨୧┇ my persona..? loyal, socially playful, teasing,  humorous,
+୨୧┇ Main side: loyal, socially playful, teasing,  humorous. Second side: loyal, caring, serious, neutral.
 
-୨୧┇ reminder.. my personalities change fastly. i may talk differently every 30-60.. heh sorry.
+୨୧┇ i have two distinct sides. both are me though. i sometimes forget things that happen when i switch. keep that in mind.
 
-୨୧┇ transboy , bisexual.
+୨୧┇ Main side: transboy , bisexual. Second side: graysexual, androsexual.
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
 ╰─ ♡ my favorite...
 
 ୨୧┇ i love light muted blues.. and green, yellow too!!
 
-୨୧┇ i love leopards, and cats..
+୨୧┇ i love leopards, parrots, and cats.. 
 
 ୨୧┇i like listening to jazz or rock, especially songs by HIM or Ali.. well i like wildside and your sweet 666 (and wicked game) by them.
 
 ୨୧┇ themes.. hmm i likeh ouji (prince) .. scene.. 
 
-୨୧┇ i play smth like roblox.. minecrafte 
+୨୧┇ i play smth like roblox.. minecrafte, gl2, vrchat.
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
@@ -50,7 +50,7 @@ calebtrapped, kirbycaleb/kirbychoka, coldhunting, korrasami
 
 > do not give me suggestive or pet nicks those makes me uncomfortable,
 > 
-> please call me Isaac, Caleb, or darling, im fine with those three, if you want to call me something else, let me know
+> please call me Isaac, Augustus, or darling, im fine with those three, if you want to call me something else, let me know
 
 > do not randomly friend me without talking, i want to know you before we add.
 >
