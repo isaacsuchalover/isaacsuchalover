@@ -61,7 +61,7 @@ calebtrapped, kirbycaleb/kirbychoka, coldhunting, korrasami
 >
 > Three: do NOT force me into your religion, try to pressure me into believing in it, or repeatedly bring it up after ive made it clear im not interested. dni if you do.
 >
-> Four: Do not say any slurs to me, it’s really rude and you must know that. and it makes me uncomfortable reading those.
+> Four: Do not say any slurs to me, i find it annoying and it makes me uncomfortable seeing it. And i do not believe in reclaiming slurs.
 > 
 > please respect my boundaries instead of trying to argue with me about them. if i tell you something makes me uncomfortable, stop doing it rather than making me explain myself repeatedly.
 >
