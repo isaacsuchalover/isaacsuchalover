@@ -19,6 +19,7 @@
 ୨୧┇ i have two distinct sides. both are me though. i sometimes forget things that happen when i switch. keep that in mind.
 
 ୨୧┇ Main side: transboy , bisexual. Second side: graysexual, androsexual.
+
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
 ╰─ ♡ my favorite...
