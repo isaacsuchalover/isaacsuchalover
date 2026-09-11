@@ -49,7 +49,7 @@ calebtrapped, kirbycaleb/kirbychoka, coldhunting, korrasami
 
 > One: do not give me suggestive or pet names, those make me uncomfortable.
 >
-> Please call me Isaac, Augustus, or darling. im fine with those three.
+> Please call me Isaac, alistare, or darling. im fine with those three.
 >
 > but if you want to call me something else, please let me know first and make sure im comfortable with it.
 >
