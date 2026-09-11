@@ -4,7 +4,7 @@
 
 ### ╰─ ♡ about me:
 
-୨୧┇ hiya there!! i go by isaac/augustus ^^
+୨୧┇ hiya there!! i go by isaac/alistare ^^
 
 ୨୧┇ i use masc terms, and prince/princes/princeself !!
 
