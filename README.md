@@ -37,10 +37,10 @@
 ### ╰─ ♡ interests & more!
 
 ୨୧┇ intrests.. 
-mm12… yes int mm12 fanzzz omfggg, atla, loa, lok, black clover, transformers, 4skn
+mm12, doodle world, wcue, black clover, lok, minecraft args, metal family
 
 ୨୧┇ ships like/love..
-calebtrapped, kirbycaleb/kirbychoka, coldhunting, korrasami
+calebtrapped, kirbycaleb/kirbychoka, coldhunting, korrasami, frozencode
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
