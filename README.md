@@ -1,58 +1,40 @@
-⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
-
- ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉
+⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢ <br>
+﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉
 
 ### ╰─ ♡ about me:
 
-୨୧┇ hiya there!! i go by isaac/alistare ^^
-
-୨୧┇ i use masc terms, and prince/princes/princeself !!
-
-୨୧┇ my bday is sept 12th ^^ (Virgo)
-
-୨୧┇ extrovert, ISFP
-
-୨୧┇ Main side: loyal, socially playful, teasing,  humorous. Second side: loyal, caring, serious, neutral.
-
-୨୧┇ Main side: transboy , bisexual. graysexual, androsexual.
+୨୧┇ hiya there!! i go by isaac/alistare ^^ <br>
+୨୧┇ i use masc terms, and prince/princes/princeself !!<br>
+୨୧┇ my bday is sept 12th ^^ (Virgo)<br>
+୨୧┇ extrovert, ISFP <br>
+୨୧┇ loyal, socially playful, teasing,  humorous. Second side: loyal, caring, serious, neutral. <br>
+୨୧┇ transboy , bisexual. graysexual, androsexual.
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
 ### ╰─ ♡ my favorite...
-
-୨୧┇ i love light muted blues.. and green, yellow too!!
-
-୨୧┇ i love leopards, parrots, and cats.. 
-
-୨୧┇i like listening to jazz or rock, especially songs by HIM or Ali.. well i like wildside and your sweet 666 (and wicked game) by them.
-
-୨୧┇ themes.. hmm i likeh ouji (prince) .. scene.. 
-
-୨୧┇ i play smth like roblox.. minecrafte, gl2, vrchat.
-
+୨୧┇ i love light muted blues.. and green, yellow too!! <br>
+୨୧┇ i love leopards, parrots, and cats.. <br>
+୨୧┇i like listening to jazz or rock, especially songs by HIM or Ali <br>
+୨୧┇ themes.. hmm i likeh ouji (prince) .. scene.. <br>
+୨୧┇ i play smth like roblox.. minecrafte, gl2, vrchat. <br>
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
-### ╰─ ♡ interests & more!
-
+### ╰─ ♡ interests & more! <br>
 ୨୧┇ intrests.. 
-mm12, doodle world, wcue, black clover, lok, minecraft args, metal family
-
+mm12, doodle world, wcue, black clover, lok, minecraft args, metal family <br>
 ୨୧┇ ships like/love..
-calebtrapped, kirbycaleb/kirbychoka, coldhunting, korrasami, frozencode
-﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
-
+calebtrapped, kirbycaleb/kirbychoka, coldhunting, korrasami, frozencode <br>
+﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍ <br>
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 
-### ╰─ ♡ boundaires,
+### ╰─ ♡ boundaires, <br>
 
-> One: do not give me suggestive or pet names, those make me uncomfortable.
+> One: do not give me suggestive or pet names, those make me uncomfortable. <br>
+> Please call me Isaac, alistare, or darling. im fine with those three. <br>
+> but if you want to call me something else, please let me know first and make sure im comfortable with it. <br>
 >
-> Please call me Isaac, alistare, or darling. im fine with those three.
->
-> but if you want to call me something else, please let me know first and make sure im comfortable with it.
->
-> Two: do not randomly friend me without talking to me first, i want to know you before we add each other.
->
+> Two: do not randomly friend me without talking to me first, i want to know you before we add each other. <br>
 > and this counts on my socials too. you can follow me, but no, i wont follow you back unless i want to or we actually know each other.
 >
 > Three: do NOT force me into your religion, try to pressure me into believing in it, or repeatedly bring it up after ive made it clear im not interested. dni if you do.
