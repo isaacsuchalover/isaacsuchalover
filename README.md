@@ -14,9 +14,7 @@
 
 ୨୧┇ Main side: loyal, socially playful, teasing,  humorous. Second side: loyal, caring, serious, neutral.
 
-୨୧┇ i have two distinct sides. both are me though. i sometimes forget things that happen when i switch. keep that in mind.
-
-୨୧┇ Main side: transboy , bisexual. Second side: graysexual, androsexual.
+୨୧┇ Main side: transboy , bisexual. graysexual, androsexual.
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
