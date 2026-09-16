@@ -1,6 +1,8 @@
 
 
 
+
+
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢ <br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉
 
@@ -16,7 +18,7 @@
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
 ### ╰─ ♡ my favorite...
-୨୧┇ i love light muted blues.. and green, yellow too!! <br>
+୨୧┇ i love light and muted blues.. and green, yellow too!! <br>
 ୨୧┇ i love leopards, parrots, and cats.. <br>
 ୨୧┇i like listening to jazz or rock, especially songs by HIM or Ali <br>
 ୨୧┇ themes.. hmm i likeh ouji (prince) .. scene.. <br>
