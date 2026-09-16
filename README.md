@@ -1,7 +1,5 @@
 
-
-
-
+<img width="2263" height="1440" alt="image" src="https://github.com/user-attachments/assets/49c6a5d6-e27a-44ed-a674-8d867ab57875" />
 
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢ <br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉
