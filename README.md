@@ -1,17 +1,16 @@
 
 <img width="2263" height="1440" alt="image" src="https://github.com/user-attachments/assets/49c6a5d6-e27a-44ed-a674-8d867ab57875" />
 
+<p align="center">
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢ <br>
-﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉
-
-### ╰─ ♡ about me:
-
-୨୧┇ hiya there!! i go by isaac/alistare ^^ <br>
-୨୧┇ i use masc terms, and prince/princes/princeself !!<br>
-୨୧┇ my bday is sept 12th ^^ (Virgo)<br>
-୨୧┇ extrovert, ISFP <br>
-୨୧┇ loyal, socially playful, teasing,  humorous. Second side: loyal, caring, serious, neutral. <br>
-୨୧┇ transboy , bisexual. graysexual, androsexual.
+﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
+### ╰─ ♡ about me: <br>
+hiya there!! i go by isaac/alistare ^^ <br>
+i use masc terms, and prince/princes/princeself !!<br>
+my bday is sept 12th ^^ (Virgo)<br>
+extrovert, ISFP <br>
+loyal, socially playful, teasing,  humorous, loyal, caring, serious, neutral. <br>
+transboy , bisexual. graysexual, androsexual.
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
@@ -29,7 +28,7 @@ mm12, doodle world, wcue, black clover, lok, minecraft args, metal family <br>
 ୨୧┇ ships like/love..
 calebtrapped, kirbycaleb/kirbychoka, coldhunting, korrasami, frozencode <br>
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍ <br>
-⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
+⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣ </p>
 
 ### ╰─ ♡ boundaires, <br>
 
