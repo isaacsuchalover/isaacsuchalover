@@ -6,7 +6,8 @@
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢ <br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 ### ╰─ ♡ about me: <br>
-hiya there!! i go by isaac/alistare ^^ <br>
+Greetings.. call me Isaac, alistare, or darling. im fine with those three.
+but if you want to call me something else, please let me know first and make sure im comfortable with it. ^^ <br>
 i use masc terms, and prince/princes/princeself !!<br>
 my bday is sept 12th ^^ (Virgo)<br>
 extrovert, ISFP <br>
@@ -34,8 +35,6 @@ calebtrapped, kirbycaleb/kirbychoka, coldhunting, korrasami, frozencode <br>
 ### ╰─ ♡ boundaires, <br>
 
 > One: do not give me suggestive or pet names, those make me uncomfortable. <br>
-> Please call me Isaac, alistare, or darling. im fine with those three. <br>
-> but if you want to call me something else, please let me know first and make sure im comfortable with it. <br>
 >
 > Two: do not randomly friend me without talking to me first, i want to know you before we add each other. <br>
 > and this counts on my socials too. you can follow me, but no, i wont follow you back unless i want to or we actually know each other.
