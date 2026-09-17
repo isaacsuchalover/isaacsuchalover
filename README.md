@@ -39,7 +39,7 @@ calebtrapped, kirbycaleb/kirbychoka, coldhunting, korrasami, frozencode <br>
 
 Two: Do not randomly friend me without talking to me first. I want to get to know you before we add each other. This applies to my socials too. You can follow me, but I will not follow you back unless I want to or we actually know each other.
 
-Three: Do NOT force your religion onto me, pressure me into believing in it, or repeatedly bring it up after I have made it clear that I am not interested. DNI if you do.
+Three: Do NOT force your religion onto me, pressure me into believing in it, or repeatedly bring it up after I have made it clear that I am not interested. dni if you do.
 
 Four: Do not use any slurs toward me, even as a joke or casually. I find them annoying, and seeing them makes me uncomfortable. I also do not believe in reclaiming slurs, so please do not use that as an excuse to say them around me. If I ask you to stop using certain language around me, respect that instead of arguing about it.
 
