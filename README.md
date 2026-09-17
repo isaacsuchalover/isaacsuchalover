@@ -6,8 +6,9 @@
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢ <br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 ### ╰─ ♡ about me: <br>
-Greetings.. call me Isaac, alistare, or darling. im fine with those three.
-but if you want to call me something else, please let me know first and make sure im comfortable with it. ^^ <br>
+Greetings.. call me Isaac, alistare, or darling. im fine with those three. <br>
+but if you want to call me something else, <br>
+please let me know first and make sure im comfortable with it. ^^ <br>
 i use masc terms, and prince/princes/princeself !!<br>
 my bday is sept 12th ^^ (Virgo)<br>
 extrovert, ISFP <br>
