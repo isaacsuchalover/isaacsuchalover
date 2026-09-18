@@ -13,6 +13,9 @@ i go by he/him or prince/princes/princeself!!<br>
 extrovert, ISFP <br>
 transboy , bisexual. graysexual, androsexual.
 
+˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ⋆.
+　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　　　　 　　 　　　　 ✦
+
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
 ### ╰─ ♡ my favorite...
