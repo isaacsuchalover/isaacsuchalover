@@ -18,19 +18,15 @@ transboy , bisexual. graysexual, androsexual.
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
-### ╰─ ♡ my favorite...
-୨୧┇ i love light and muted blues.. and green, yellow too!! <br>
-୨୧┇ i love leopards, parrots, and cats.. <br>
-୨୧┇i like listening to jazz or rock, especially songs by HIM or Ali <br>
-୨୧┇ themes.. hmm i likeh ouji (prince) .. scene.. <br>
-୨୧┇ i play smth like roblox.. minecrafte, gl2, vrchat. <br>
-﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
-### ╰─ ♡ interests & more! <br>
-୨୧┇ intrests.. 
-mm12, doodle world, wcue, black clover, lok, minecraft args, metal family <br>
-୨୧┇ ships like/love..
-calebtrapped, kirbycaleb/kirbychoka, coldhunting, korrasami, frozencode <br>
+▍ ⎯﹕ ships ﹕<br>
+            likes/love. mm12﹕ ellercaleb . kirbycaleb/kirbychoka . jtwister . vilitree . <br>
+                          calebtrapped . lonelytrapped . icaleb . vilicaden .
+▍ ⎯﹕ fandoms ﹕
+                               mm12 . doodle world . black clover . atla/lok . minecraft .<br>
+                    countryhumans . transformers . 
+　  
+                    
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍ <br>
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣ </p>
 
