@@ -9,10 +9,9 @@
 Greetings.. call me Isaac, alistare, or darling. im fine with those three. <br>
 but if you want to call me something else, <br>
 please let me know first and make sure im comfortable with it. ^^ <br>
-i use masc terms, and prince/princes/princeself !!<br>
+please use masc terms on me, i go by he/him or prince/princes/princeself!!<br>
 my bday is sept 12th ^^ (Virgo)<br>
 extrovert, ISFP <br>
-loyal, socially playful, teasing,  humorous, loyal, caring, serious, neutral. <br>
 transboy , bisexual. graysexual, androsexual.
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
