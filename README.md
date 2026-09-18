@@ -5,12 +5,11 @@
 <p align="center">
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢ <br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
-  ╰─ ♡ about me: <br>
+╰─ ♡ about me: <br>
 Greetings.. call me Isaac, alistare, or darling. im fine with those three. <br>
 but if you want to call me something else. please let me know first <br>
 and make sure im comfortable with it. ^^ <br>
-please use masc terms on me, i go by he/him or prince/princes/princeself!!<br>
-my bday is sept 12th ^^ (Virgo)<br>
+i go by he/him or prince/princes/princeself!!<br>
 extrovert, ISFP <br>
 transboy , bisexual. graysexual, androsexual.
 
