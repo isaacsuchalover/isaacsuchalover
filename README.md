@@ -20,8 +20,8 @@ transboy , bisexual. graysexual, androsexual.
 
 
 ▍ ⎯﹕ ships ﹕<br>
-            likes/love. mm12﹕ ellercaleb . kirbycaleb/kirbychoka . jtwister . vilitree . <br>
-                          calebtrapped . lonelytrapped . icaleb . vilicaden . <br>
+            likes/love. ﹕ ellercaleb . kirbycaleb/kirbychoka . jtwister . vilitree . <br>
+                          calebtrapped . lonelytrapped . icaleb . vilicaden . frozenwing/birdcage <br>
 ▍ ⎯﹕ fandoms ﹕
                                mm12 . doodle world . black clover . atla/lok . minecraft .<br>
                     countryhumans . transformers . 
