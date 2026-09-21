@@ -34,6 +34,11 @@ transboy , bisexual. graysexual, androsexual.
 
 ### ╰─ ♡ boundaires, <br>
 
+
+
+<details>
+<summary>boundaries</summary>
+
 > One: Do not give me suggestive, overly affectionate, or unwanted pet names. I prefer to be called Isaac, Alistare, or darling. Please stick to those names instead of making up random nicknames or using other pet names without my permission. If I tell you that a name or nickname makes me uncomfortable, stop using it instead of repeatedly asking why or trying to convince me that it is harmless.
 
 Two: Do not randomly friend me without talking to me first. I want to get to know you before we add each other. This applies to my socials too. You can follow me, but I will not follow you back unless I want to or we actually know each other.
@@ -45,3 +50,5 @@ Four: Do not use any slurs toward me, even as a joke or casually. I find them an
 Please respect my boundaries instead of trying to argue with me about them. If I tell you something makes me uncomfortable, stop doing it rather than making me explain myself repeatedly.
 
 Do not assume that because we are friends or mutuals, you automatically have permission to do whatever you want around me. I still have boundaries, and I expect them to be respected.
+
+</details>
