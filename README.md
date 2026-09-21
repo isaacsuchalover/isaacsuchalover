@@ -1,13 +1,13 @@
 
-<img width="2263" height="1440" alt="image" src="https://github.com/user-attachments/assets/7d038e38-14c2-4933-a39b-e2b5d53073d1" />
+<img width="2263" height="1440" alt="image" src="https://github.com/user-attachments/assets/7d038e38-14c2-4933-a39b- e2b5d53073d1" />
 
 
 <p align="center">
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢ <br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
-╰─ ♡ about me: <br>
-Greetings.. call me Isaac, alistare, or darling. im fine with those three. <br>
-but if you want to call me something else. please let me know first <br>
+♡ about me: <br>
+Greetings.. the names i use is Isaac mostly and alistare sometimes. <br>
+im fine with nicknames like darling, prince. but if you want to call me something else. please let me know first <br>
 and make sure im comfortable with it. ^^ <br>
 i go by he/him or prince/princes/princeself!!<br>
 extrovert, ISFP <br>
