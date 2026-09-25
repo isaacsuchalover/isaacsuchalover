@@ -32,10 +32,6 @@ transboy , bisexual. graysexual, androsexual.
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍ <br>
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣ </p>
 
-### ╰─ ♡ boundaires, <br>
-
-
-
 <details>
 <summary>boundaries</summary>
 
